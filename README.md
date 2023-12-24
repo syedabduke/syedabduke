@@ -23,7 +23,7 @@
 ## Connect With Me 🤝
 
 - **LinkedIn**: [www.linkedin.com/in/syedahassan1999]
-- **Email**: [syed.hassan@duke.edu]
+- **Email**: [sh763@duke.edu] / [sabdah6@gmail.com]
 
 ## A Bit More About Me 📖
 
