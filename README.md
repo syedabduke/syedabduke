@@ -1,4 +1,4 @@
-# Hello, World! I'm [Syed A. Hassan] 👋
+# Hello, World! I'm [Syed Hassan] 👋
 
 ## About Me 🚀
 
