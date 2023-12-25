@@ -28,8 +28,7 @@
 ## A Bit More About Me 📖
 
 - 🏀 Passion for sports, blending with my knack for **economics** to analyze sports trends.
-- 📚 Continuously learning about **cybersecurity** to understand the underpinnings of digital defense.
-- 💬 Pronouns: He/Him
+- 📚 Continuously learning about **cybersecurity** to understand the underpinnings of digital defense
 
 ---
 
